@@ -9,6 +9,6 @@ Favorite Football Player
  
   Socials
   - [Facebook](https://www.facebook.com)
-  - [Instagram](https://www.instagram.com)
+  - [Instagram](https://www.instagram.com/larryrallyrari/?next=%2F)
   - [Discord](https://www.discord.com)
 
